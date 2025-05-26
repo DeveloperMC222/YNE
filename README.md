@@ -1,2 +1,2 @@
 # YNE
-A Rapper
+Is a American Street Rapper!
